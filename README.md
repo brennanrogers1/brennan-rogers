@@ -1,1 +1,5 @@
-# brennan-rogers
+# Brennan & Rogers Provides The Most Trusted Maine Probate Lawyers
+
+Brennan & Rogers, PLLC houses some of the most adept and compassionate Maine probate lawyers, providing a comprehensive array of services to clients in Maine, New Hampshire, and Massachusetts. The firm's estate probate attorneys, including Smilie G. Rogers, James S. Mundy, Michael A. Cahill, and Katherine M. Audet, are committed to adeptly guiding individuals through the probate process with expertise and empathy. Probate, the judicial process overseeing the administration of wills or the estates of individuals without wills, involves notifying creditors of a person's passing. The firm's dedication to excellence is underscored by its recognition as the First Place Winner in the Best Law Firm category in the 2022 Best of the Seacoast Community Choice Awards, a testament to the trust and satisfaction of the community. Brennan & Rogers maintains transparent billing practices for estate planning, ensuring clients are well-informed and supported throughout the probate process.
+
+Visit: https://brennanrogers.com/probate/
